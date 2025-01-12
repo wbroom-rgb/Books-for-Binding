@@ -1,0 +1,3 @@
+These are all of the section files for The Murder of Roger Ackroyd by Agatha Christie
+Just print, fold Punch for sewing and sew
+keep them all in order.....
